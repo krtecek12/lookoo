@@ -1,0 +1,2 @@
+# lookoo
+lokoooo  motiva
